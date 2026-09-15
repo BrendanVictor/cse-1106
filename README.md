@@ -1,1 +1,2 @@
-Kennen is nerfed ayayayya
+This is the start of my college career
+
